@@ -1,4 +1,4 @@
-# Jasmine
+# JasmineAIGC
 
 **Algorithm Engineer | AIGC · Generative Visual AI**
 
