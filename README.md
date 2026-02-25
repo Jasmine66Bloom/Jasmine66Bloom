@@ -39,7 +39,7 @@ Chongqing Institute of Green and Intelligent Technology
 ## Contact
 
 - Zhihu: [https://www.zhihu.com/people/zhouyj2366](https://www.zhihu.com/people/zhouyj2366)
-- Email: [请在这里补充你的邮箱]
+- Email: [zhouyj2366@gmail.com](zhouyj2366@gmail.com)
 
 ---
 
